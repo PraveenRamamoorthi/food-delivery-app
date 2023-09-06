@@ -1,1 +1,1 @@
-https://frolicking-belekoy-34c390.netlify.app/
+https://splendid-lokum-93e88e.netlify.app
